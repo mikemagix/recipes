@@ -1,5 +1,7 @@
 # Carrot Cake Baked Oats
 
+![Carrot Cake Baked Oats](carrot-cake-baked-oats.jpg)
+
 ## Składniki
 
 ### Baked oats
