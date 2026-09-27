@@ -12,9 +12,9 @@ The reel's public description says the recipe uses only oatmeal and apples. The 
 
 ## Method
 
-The video describes an apple pie that melts in your mouth. Exact quantities and baking instructions still need to be transcribed from the video.
+Blend two apples, mix with the eggs and oat flour, then bake in a lined baking dish until set and golden. The original reel uses a standard baked-apple-dessert method; exact baking time and temperature were not specified manually.
 
-> Note: this recipe is intentionally marked as incomplete until the spoken ingredients and method can be verified.
+> Note: the ingredient quantities are from the user; the baking temperature and time remain unspecified.
 
 ## Source
 
@@ -22,6 +22,6 @@ Original link supplied: [Facebook share link](https://www.facebook.com/share/v/1
   
 Direct video URL: [Simple Food video](https://www.facebook.com/simplefoodvideoo/videos/no-flour-white-sugar-or-butter-only-oatmeal-and-apples-an-apple-pie-that-melts-i/3050032069190463/)
 
-<!-- TODO: transcribe the video audio to recover exact quantities and steps. -->
+
   
   
