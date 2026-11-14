@@ -6,6 +6,8 @@ Also called an invisible apple cake: thin layers of apple bound by a delicate ba
 
 Source: [Facebook reel](https://www.facebook.com/pinchofmint/videos/thousand-layer-apple-cake-recipe-applecake-recipe-cake/1051595737721752/)
 
+Date added: 2026-10-03
+
 ## Ingredients
 
 - 6–8 apples

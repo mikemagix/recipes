@@ -6,6 +6,8 @@ Creamy, pudding-like overnight oats blended with a cinnamon apple mixture — a 
 
 Source: [Fitfoodieselma — Facebook video](https://www.facebook.com/fitfoodieselma/videos/blended-apple-pie-overnight-oats-30-g-protein-13-g-fiber-these-are-a-delicious-b/2313513149494223/)
 
+Date added: 2026-11-14
+
 **Yield: two servings.**
 
 ## Ingredients

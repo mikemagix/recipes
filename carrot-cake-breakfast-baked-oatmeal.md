@@ -6,6 +6,8 @@ A meal-prep baked oatmeal with 11 g protein per serving, no protein powder, and 
 
 Source: [Facebook reel](https://www.facebook.com/lindsaypleskotrd/videos/carrot-cake-for-breakfast-with-11g-protein-no-protein-powder-and-4g-fiber-does-it-get-any-better-i/38039968028927698/)
 
+Date added: 2026-09-27
+
 ## Ingredients
 
 - 1 cup milk

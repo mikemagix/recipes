@@ -6,6 +6,8 @@ The simplest chocolate dessert out there: a whole apple-cocoa cake blended from 
 
 Source: [Facebook video](https://www.facebook.com/share/v/1CF7yecbTv/) · [original video](https://www.facebook.com/ikbenhubert/videos/-zapisz-przepis-bo-prostszego-deseru-ju%C5%BC-chyba-nie-znajdziesz-810-makro-dobre-sz/1136305655587674/) · recipe credit: @mama.2blog (via IkbenHubert Fitness)
 
+Date added: 2026-11-03
+
 ## Ingredients
 
 - 1 large apple (200 g)

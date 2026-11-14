@@ -6,6 +6,8 @@ Blended cookie-dough-style oats bowl — secretly loaded with chickpeas and caul
 
 Source: [Facebook video](https://www.facebook.com/share/v/1GMzamjub5/) · [original video](https://www.facebook.com/ralston.dsouza.39/videos/cookie-dough-blended-oatsrecipe-by-broccoli_mum-ingredientsto-a-blender-add-12-c/2776974222699243/) · recipe credit: @broccoli_mum (via Ralston D'Souza)
 
+Date added: 2026-11-05
+
 ## Ingredients
 
 - ½ cup cooked chickpeas

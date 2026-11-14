@@ -6,6 +6,8 @@ A flour-free, white-sugar-free, and butter-free apple pie made with oatmeal and 
 
 Source: [Facebook video](https://www.facebook.com/simplefoodvideoo/videos/no-flour-white-sugar-or-butter-only-oatmeal-and-apples-an-apple-pie-that-melts-i/3050032069190463/)
 
+Date added: 2026-09-26
+
 ## Ingredients
 
 The reel's public description says the recipe uses only oatmeal and apples. The exact quantities and full method are spoken in the video and were not included in the public description, so they are not guessed here.

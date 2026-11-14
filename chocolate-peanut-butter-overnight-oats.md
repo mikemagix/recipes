@@ -6,6 +6,8 @@ A creamy chocolate overnight-oats base with peanut butter and pieces of dark cho
 
 Source: [Facebook post](https://www.facebook.com/61574825356928/posts/nocna-owsianka-czekoladowa-z-mas%C5%82em-orzechowym-%EF%B8%8Fintensywnie-kakaowa-baza-krem-or/122189997788827511/)
 
+Date added: 2026-10-02
+
 ## Ingredients — 1 serving
 
 - 40 g rolled oats

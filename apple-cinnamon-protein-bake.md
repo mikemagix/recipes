@@ -6,6 +6,8 @@ High-protein breakfast bake from Lillie Eats and Tells — 242 calories and 24.7
 
 Source: [Facebook reel](https://www.facebook.com/share/r/1YTTfcBU8w/) · [original video](https://www.facebook.com/lillieeatsandtells/videos/breakfast-240-cal-and-24g-of-protein-per-big-square-the-way-i-love-to-top-it-to-/1126727866614474/)
 
+Date added: 2026-10-27
+
 ## Ingredients
 
 - 1 ½ cup rolled oats (161 g)

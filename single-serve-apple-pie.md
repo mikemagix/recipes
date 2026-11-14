@@ -6,6 +6,8 @@ A simple single-serving, no-knead apple crumble-style pie.
 
 Source: [Facebook reel](https://www.facebook.com/100086522696291/videos/jednoporcjowa-szarlotka-sypana7-minut-przygotowania-i-taka-ca%C5%82a-szarlotka-ma-tyl/1520665283354342/)
 
+Date added: 2026-09-27
+
 ## Ingredients
 
 - 25 g ground oats

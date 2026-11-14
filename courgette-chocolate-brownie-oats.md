@@ -6,6 +6,8 @@ A fudgy baked-oats brownie made with grated courgette.
 
 Source: [Facebook reel](https://www.facebook.com/watch/?ref=saved&v=1340839834185136)
 
+Date added: 2026-09-26
+
 ## Ingredients
 
 - 50 g oat flour (or oats blended into flour)

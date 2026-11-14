@@ -6,6 +6,8 @@ An autumn snack made with apple, almond butter, oats, and a simple caramel toppi
 
 Source: [Facebook reel](https://www.facebook.com/61564237352202/videos/let-the-autumn-recipes-begin-these-are-sooo-yummy-and-i-wish-you-could-try-them-/4070055086632946/)
 
+Date added: 2026-09-26
+
 ## Ingredients
 
 ### Oat bars
